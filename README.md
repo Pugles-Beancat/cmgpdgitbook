@@ -8,6 +8,10 @@ coverY: -163.52422907488986
 
 The purpose of COP is to make sure all new members of the Metropolitan Police (PCSOs) are trained so that they progress. COP members are the first encounter that someone has within the police force, once a person has been accepted they will need to complete different stages in order to become a Police Constable. These are the interview, basic training, ride along and the final exam. It is the College Of Policing's job to make sure that the person is ready to join PD.
 
+
+
+<mark style="color:red;">**ZNEAP IS A WAFFLER**</mark>
+
 ## <mark style="color:blue;">Qualities needed to be a Policing Examiner</mark>
 
 You need certain qualities to become a policing examiner. Most importantly you need to be able to stay professional at all times during the course of the PCSO process. As well as this you have to have good judgment, this is because you will be examining people on a daily basis. You also need to be compassionate as some PCSOs sometimes don’t understand the first time around, you will need to teach them the things that they have gotten incorrect and how to improve in the future.
