@@ -10,8 +10,6 @@ The purpose of COP is to make sure all new members of the Metropolitan Police (P
 
 
 
-<mark style="color:red;">**ZNEAP IS A WAFFLER**</mark>
-
 ## <mark style="color:blue;">Qualities needed to be a Policing Examiner</mark>
 
 You need certain qualities to become a policing examiner. Most importantly you need to be able to stay professional at all times during the course of the PCSO process. As well as this you have to have good judgment, this is because you will be examining people on a daily basis. You also need to be compassionate as some PCSOs sometimes don’t understand the first time around, you will need to teach them the things that they have gotten incorrect and how to improve in the future.
